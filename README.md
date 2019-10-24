@@ -1,0 +1,2 @@
+# jackpot
+Nothing last forever
